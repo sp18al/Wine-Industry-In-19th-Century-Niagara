@@ -29,3 +29,27 @@ References
 scotchwhiskey.com : Hedges and Butler Limited., 2021. Accessed November 20th, 2021.
 https://scotchwhisky.com/whiskypedia/3082/hedges-and-butler-limited/ 
 
+
+All Credit For Images and Resources Go To:
+
+Invoice to A.Hamilton from Mr. Thomas McCormick. Brock Archives & Special Collections, Alexander Hamilton Fonds, 1809-1842 RG 640
+
+Annual Meeting September 1, 1898 and By-Law no.16. Brock Archives & Special Collections, Barnes Wines Fonds, 1873-1986 RG 427
+
+By-Laws No.1 through 11. Brock Archives & Special Collections, Barnes Wines Fonds, 1873-1986 RG 427
+
+Meeting 1 July 1881. Brock Archives & Special Collections, Barnes Wines Fonds, 1873-1986 RG 427
+
+Hedges & Butler Advertisement. Brock Archives & Special Collections, Seagram Museum Collection RG 490
+
+Orchards and Vineyards of Ontario, the premier province of Canada (1897). Brock Archives & Special Collections, Other Digitized Items
+
+Letters Patent Incorporating The Ontario Grape Growing and Wine Manufacturing Company. Brock Archives & Special Collections, Barnes Wines Fonds, 1873-1986 RG 427
+
+Illustration-"Grape Culture- A new Source of Canadian Wealth." Brock Archives & Special Collections, Seagram Museum Collection RG 490
+
+The Vineyards of Champagne. Brock Archives & Special Collections, Seagram Museum Collection RG 490
+
+The Vintage in France: Bordeaux and the Claret District. Brock Archives & Special Collections, Seagram Museum Collection RG 490
+
+
